@@ -1,0 +1,1 @@
+This website was made to educate more people about the considerable impact Chancellor Adenauer had in Germnay.
